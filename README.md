@@ -5,4 +5,4 @@
 ### Donde me puedes encontrar
 
 _Personal_
-* :star::blush: Red de trabajo **[Facebook](https://www.linkedin.com/in/elida-dom%C3%ADnguez-057965181/)** :v:
+* :star::blush: Red de trabajo **[Linkedin](https://www.linkedin.com/in/elida-dom%C3%ADnguez-057965181/)** :v:
