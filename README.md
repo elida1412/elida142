@@ -1,9 +1,8 @@
 ![](https://github.com/hebertdev1/hebertdev1/blob/master/javascript.gif)
 
-## Hello! I'm Hebert Villafuerte, web developer from Arequipa. I have extensive experience in the design and building of web applications.
+## Hello! I'm Elida Domínguez, Planification and control ENSA. Experienced Electrical Engineering Specialist with a demonstrated history of working in the oil & energy industry. Skilled in AutoCAD, C++, SAP ERP, Maximo and Leadership. Strong operations professional with Bachelor's degree in system electric and automation and additional Bachelor's degree focused in Ingeniería Mecatrónica from Universidad Latina de Panamá. 
 
 ### Donde me puedes encontrar
 
 _Personal_
-* :star::blush: Fotos, tips y memes **[Instagram](https://www.instagram.com/elidin14)** :v:
-* :star::blush: Algo que no uso x1 **[Facebook](https://facebook.com/elidadominguez)** :v:
+* :star::blush: Red de trabajo **[Facebook](https://www.linkedin.com/in/elida-dom%C3%ADnguez-057965181/)** :v:
